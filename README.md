@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @Mukesh-Lekhrajani
-- 👀 Coding Is My Passion
-- 🌱 Continuously Up-Skilling Gives Me Reason To LIVE
-- 💞️ I’m looking to collaborate on ...Various Technology Fronts
-- 📫 How to reach me ...+91 9819285174
+- 👀 Coding EQUALS Reason To Breath
+- 🌱 Continuous Up-Skilling EQUALS Continuous Heart Beat
+- 💞️ Treasure Hunt EQUALS New Technologies
+- 📫 Buzzz EQUALS +91 9819285174
 
 <!---
 Mukesh-Lekhrajani/Mukesh-Lekhrajani is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
