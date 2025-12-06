@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Mukesh-Lekhrajani
-- 👀 Coding EQUALS Reason To Breath
-- 🌱 Continuous Up-Skilling EQUALS Continuous Heart Beat
+- 👀 Coding Is Life-Line
+- 🌱 Upskilling Is Charger
 - 💞️ Treasure Hunt EQUALS New Technologies
 - 📫 Buzzz EQUALS +91 9819285174
 
